@@ -1,4 +1,4 @@
-# Apprendre le Français
+# La langue française
 
 Bienvenue sur le site "Apprendre le Français" ! Ce site est dédié à l'enseignement de la langue française à travers des vidéos éducatives, des articles et des ressources utiles.
 
